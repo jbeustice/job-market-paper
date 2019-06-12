@@ -1,1 +1,1 @@
-# Public info related to my job market paper.
+# Resources related to my job market paper
